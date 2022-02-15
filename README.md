@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AhsLoveme 
+- 👋 Hi, I’m @AhsLove
 - 👀 I’m interested in  la tecnología  y me gustaría seguir aprendiendo de ella
 - 🌱 I’m currently learning  programación
 - 💞️ I’m looking to collaborate on  empresas .....
